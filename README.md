@@ -56,3 +56,5 @@ Some operating systems require installation or may come pre-installed with purch
 
 ![vk](https://images.moneycontrol.com/static-mcnews/2021/10/Virat-Kohli-illustration-770x433.jpg?impolicy=website&width=770&height=431)
 
+![INDIA FLAG](https://economictimes.indiatimes.com/thumb/msid-75220865,width-1200,height-900,resizemode-4,imgsize-638670/india-flag-alps.jpg?from=mdr)
+
